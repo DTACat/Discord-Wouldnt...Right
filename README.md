@@ -5,3 +5,5 @@
 ![image](https://github.com/DTACat/Discord-Wouldnt...Right/assets/141873540/912d0abe-656f-4046-9ec7-8f4baaf4133d)
 
 ![image](https://github.com/DTACat/Discord-Wouldnt...Right/assets/141873540/87bb33bd-7c94-4331-bd60-c7e68e871945)
+
+![Frame 7 (5)](https://github.com/DTACat/Discord-Wouldnt...Right/assets/141873540/902d1559-bfab-47e4-8d93-e9cc40f1bfe2)
